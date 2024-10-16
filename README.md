@@ -1,1 +1,1 @@
-# site_eletronicos_turmaB
+ https://patolinoomag0.github.io/Loja/
